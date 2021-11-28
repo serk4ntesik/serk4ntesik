@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @serk4ntesik
 - I develop mobile apps in my spare time. 
-- I run my projects alone and sometimes I need help so if you want to reach me serkantesik6@gmail.com m - I run my projects alone and sometimes I need help, so if you want to reach me, you can send an e-mail to serkantesik6@gmail.com you can send an e-mail to . 
+- I run my projects on my own, so sometimes I need help, so if you want to reach me, you can send an e-mail to serkantesik6@gmail.com. 
